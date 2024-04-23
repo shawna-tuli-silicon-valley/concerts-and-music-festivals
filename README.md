@@ -1,5 +1,6 @@
 * ABBA Voyage, London
 * Sam Smith: GLORIA the Tour, Inglewood
+* Asha Stanford Holi, Stanford
 * Illenium, Las Vegas
 * Dillon Francis, Las Vegas
 * The Chainsmokers, Las Vegas
