@@ -26,4 +26,3 @@
 * Aldrich Park After Dark, UCI
 * BTS Wings Tour, Anaheim
 * Rock of Ages, Las Vegas
-* Hannah Montana, Charlotte
