@@ -22,7 +22,6 @@
 * Aldrich Park After Dark, UCI
 * Air + Style Music Festival, Los Angeles
 * Summerlands, UCI
-* Kanye West Saint Pablo Tour, Anaheim (Canceled)
 * Shocktober, UCI
 * Aldrich Park After Dark, UCI
 * BTS Wings Tour, Anaheim
