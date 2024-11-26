@@ -26,3 +26,4 @@
 * Aldrich Park After Dark, UCI
 * BTS Wings Tour, Anaheim
 * Rock of Ages, Las Vegas
+* Best of Both Worlds Tour, Charlotte
