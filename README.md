@@ -1,4 +1,3 @@
-* Cyndi Lauper: Girls Just Wanna Have Fun Farewell Tour, San Francisco
 * Badshah, Oakland
 * ABBA Voyage, London
 * Sam Smith: GLORIA the Tour, Inglewood
