@@ -1,4 +1,4 @@
-* TBA, Las Vegas
+* The Killers, Las Vegas
 * ABBA Voyage, London
 * Sam Smith: GLORIA the Tour, Inglewood
 * Asha Stanford Holi, Stanford
