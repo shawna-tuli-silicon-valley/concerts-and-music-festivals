@@ -10,6 +10,7 @@
 * Shocktober, UCI
 * TroyBoi, Costa Mesa
 * Aldrich Park After Dark, UCI
+* Grace Hopper Celebration, Orlando
 * LED Anniversary, San Diego
 * Summerlands, UCI
 * The Chainsmokers, San Francisco
