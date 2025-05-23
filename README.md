@@ -1,3 +1,4 @@
+* Guru Randhawa, San Jose
 * The Killers, Las Vegas
 * ABBA Voyage, London
 * Sam Smith: GLORIA the Tour, Inglewood
