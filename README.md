@@ -1,3 +1,4 @@
+* Badshah, Oakland
 * Guru Randhawa, San Jose
 * The Killers, Las Vegas
 * ABBA Voyage, London
