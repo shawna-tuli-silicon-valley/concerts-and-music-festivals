@@ -1,7 +1,7 @@
 * TAMASHA: An Extravaganza of Desi Fusion, Stanford 
 * Badshah, Oakland
 * Guru Randhawa, San Jose
-* The Killers, Las Vegas
+* Google Cloud Next Conference, Las Vegas
 * ABBA Voyage, London
 * Sam Smith: GLORIA the Tour, Inglewood
 * Asha Stanford Holi, Stanford
@@ -13,7 +13,7 @@
 * Shocktober, UCI
 * TroyBoi, Costa Mesa
 * Aldrich Park After Dark, UCI
-* Grace Hopper Celebration, Orlando
+* Grace Hopper Celebration of Women in Computing Conference, Orlando
 * LED Anniversary, San Diego
 * Summerlands, UCI
 * The Chainsmokers, San Francisco
