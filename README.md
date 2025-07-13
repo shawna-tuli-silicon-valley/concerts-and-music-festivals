@@ -1,4 +1,3 @@
-* TAMASHA: An Extravaganza of Desi Fusion, Stanford 
 * Badshah, Oakland
 * Guru Randhawa, San Jose
 * Google Cloud Next Conference, Las Vegas
