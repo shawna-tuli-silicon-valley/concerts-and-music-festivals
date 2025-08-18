@@ -1,3 +1,4 @@
+* Shea, Oakland
 * Guru Randhawa, San Jose
 * Google Cloud Next Conference, Las Vegas
 * ABBA Voyage, London
