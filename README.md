@@ -1,4 +1,4 @@
-* DJMumbaiRani, San Jose
+* DJ Mumbai Rani, San Jose
 * Shea, Oakland
 * Guru Randhawa, San Jose
 * Google Cloud Next Conference, Las Vegas
