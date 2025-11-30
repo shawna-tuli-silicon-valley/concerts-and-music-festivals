@@ -1,3 +1,4 @@
+* AWS re:Invent Conference, Las Vegas
 * PW 15-Year Anniversary Night Three w/ Wreckno, Sippy & Baby Kush, San Francisco
 * DJ Mumbai Rani, San Jose
 * Shea, Oakland
