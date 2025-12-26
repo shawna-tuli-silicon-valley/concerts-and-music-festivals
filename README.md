@@ -1,3 +1,5 @@
+* Rhythms of the Night VIP Experience, Puerto Vallarta 
+* Christmas Eve, Puerto Vallarta
 * PW 15-Year Anniversary Night Three w/ Wreckno, Sippy & Baby Kush, San Francisco
 * DJ Mumbai Rani, San Jose
 * Shea, Oakland
