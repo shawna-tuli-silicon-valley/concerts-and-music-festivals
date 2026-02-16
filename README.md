@@ -1,10 +1,11 @@
+* DJ Shea, Berkeley
 * Diljit Dosanjh, San Francisco
 * Football Fan Fest, Mountain View
 * Rhythms of the Night VIP Experience, Puerto Vallarta 
 * Christmas Eve, Puerto Vallarta
 * PW 15-Year Anniversary Night Three w/ Wreckno, Sippy & Baby Kush, San Francisco
 * DJ Mumbai Rani, San Jose
-* Shea, Oakland
+* DJ Shea, Oakland
 * Guru Randhawa, San Jose
 * Google Cloud Next Conference, Las Vegas
 * ABBA Voyage, London
