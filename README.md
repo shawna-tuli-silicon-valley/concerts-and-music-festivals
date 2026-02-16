@@ -1,3 +1,4 @@
+* Diljit Dosanjh, San Francisco
 * Football Fan Fest, Mountain View
 * Rhythms of the Night VIP Experience, Puerto Vallarta 
 * Christmas Eve, Puerto Vallarta
