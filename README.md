@@ -1,4 +1,3 @@
-* DJ Shea, Berkeley
 * Diljit Dosanjh, San Francisco
 * Football Fan Fest, Mountain View
 * Rhythms of the Night VIP Experience, Puerto Vallarta 
